@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Skm40061
 - 👀 I’m interested in statistics
-- 🌱 I’m currently graduduating
+- 🌱 I’m currently persuing Master in Biostatistics.
 - 📫skmisstandard@gmail.com
 
 <!---
